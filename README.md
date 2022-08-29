@@ -1,0 +1,1 @@
+# New-results-on-generalizations-of-the-Choquet-integral-by-t-norms
